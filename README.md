@@ -1,4 +1,4 @@
-# WangHaoLin827的博客Blog :link: https://WangHaoLin827.github.io 
+# WangHaoLin827的博客Blog :link: https://blog.vpsm.dpdns.org
 ### :page_facing_up: [1](https://WangHaoLin827.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 1844 
